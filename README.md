@@ -1,1 +1,0 @@
-# Baruch-Data-Challenge
